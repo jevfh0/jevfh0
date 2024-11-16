@@ -15,9 +15,9 @@
 ![idk16](https://64.media.tumblr.com/68bb9e71ec030bfeb579002c6761aa36/37777c07c7c048ea-9e/s100x200/f463e36b2aa8cf02e26c4f744a90504547b40612.gifv)
 
 <div align="center">
-  <img src="https://cdn.discordapp.com/attachments/1248563532388372481/1307265515806396437/Untitled21_20241116154617.png?ex=6739ad62&is=67385be2&hm=fdb63fd86cb819b7ebdb3535df150b64c45a1ac5633b7d04cce8c22b0e4a952a&"height="300"
+  <img src="https://i.pinimg.com/736x/df/70/52/df7052a8afcc96669d334c04ee19e506.jpg"height="300"
     </div>
-
+  
 ![idk10](https://64.media.tumblr.com/ad5eaee7f197c2d7d56d07a8b2bfc908/7022dab1c46a2941-60/s75x75_c1/d581fa5884f3a1d374c6e70207ea26c31312fec6.gifv)
 
 [RENTRY](https://rentry.co/jevfhhf) - [PRONOUNSPAGE](https://ru.pronouns.page/@jevfh)
