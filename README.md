@@ -15,12 +15,12 @@
 ![idk16](https://64.media.tumblr.com/68bb9e71ec030bfeb579002c6761aa36/37777c07c7c048ea-9e/s100x200/f463e36b2aa8cf02e26c4f744a90504547b40612.gifv)
 
 <div align="center">
-  <img src="https://i.pinimg.com/736x/df/70/52/df7052a8afcc96669d334c04ee19e506.jpg"height="300"
+  <img src="https://cdn.discordapp.com/attachments/1248563532388372481/1312121153107787876/8346672b3f53dda8fecba39caa9e3e57.jpg?ex=674b578c&is=674a060c&hm=ad36b7e7901ff697e0df27acd54e0b2c6434067f8c32bdeee87ddc67a04d8587&"height="300"
     </div>
   
 ![idk10](https://64.media.tumblr.com/ad5eaee7f197c2d7d56d07a8b2bfc908/7022dab1c46a2941-60/s75x75_c1/d581fa5884f3a1d374c6e70207ea26c31312fec6.gifv)
 
-- [PRONOUNSPAGE](https://ru.pronouns.page/@jevfh)
+[PRONOUNSPAGE](https://ru.pronouns.page/@jevfh)
 
 ![idk17](https://64.media.tumblr.com/5622c813552d7d4bb94a2c1030883be0/d0745e618a8e6ac7-d6/s250x400/b674064927cd82d089e4670ab83f18158a4f2518.jpg)
 ![idk18](https://64.media.tumblr.com/8652aa3d3a96753edf79715c8dcf7f32/5e5d02f1f6821b09-28/s100x200/e165b9657e97916cd925e028b0bb08f618101e35.jpg)
