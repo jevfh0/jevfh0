@@ -20,7 +20,7 @@
   
 ![idk10](https://64.media.tumblr.com/ad5eaee7f197c2d7d56d07a8b2bfc908/7022dab1c46a2941-60/s75x75_c1/d581fa5884f3a1d374c6e70207ea26c31312fec6.gifv)
 
-[RENTRY](https://rentry.co/jevfhhf) - [PRONOUNSPAGE](https://ru.pronouns.page/@jevfh)
+- [PRONOUNSPAGE](https://ru.pronouns.page/@jevfh)
 
 ![idk17](https://64.media.tumblr.com/5622c813552d7d4bb94a2c1030883be0/d0745e618a8e6ac7-d6/s250x400/b674064927cd82d089e4670ab83f18158a4f2518.jpg)
 ![idk18](https://64.media.tumblr.com/8652aa3d3a96753edf79715c8dcf7f32/5e5d02f1f6821b09-28/s100x200/e165b9657e97916cd925e028b0bb08f618101e35.jpg)
